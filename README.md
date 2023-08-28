@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Akila Rubaiyath
 - 👀 I’m interested in human being, the most complicated creature in the world.
 - 🌱 I’m currently learning about tolerance.
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me through email-akilarubaiyath@gmail.com
 
 <!---
